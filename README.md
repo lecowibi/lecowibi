@@ -1,5 +1,5 @@
 # 💫 About Me:
-I craft premium digital experiences with modern web technologies, focusing on performance, accessibility, and pixel-perfect design.
+I am Bishal Tamang. I craft premium digital experiences with modern web technologies, focusing on performance, accessibility, and pixel-perfect design.
 
 
 ## 🌐 Socials:
